@@ -1,2 +1,2 @@
 # nauka_gita2
-gititgitgit
+gititgitgddit
